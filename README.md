@@ -1,1 +1,0 @@
-# ShanSir_Web_ARidyjyk
